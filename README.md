@@ -5,3 +5,4 @@
 
 ![Screenshot_2024-07-05-00-59-18-088_host exp exponent](https://github.com/Saswat2002/mob_app/assets/168168754/c9b8f23f-9c5e-45b9-b8c7-436b64011e7e)
 
+![Screenshot_2024-07-05-00-59-22-254_host exp exponent](https://github.com/Saswat2002/mob_app/assets/168168754/7aa36485-749c-4142-a9ca-7758c67125fe)
