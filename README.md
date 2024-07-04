@@ -7,3 +7,4 @@
 
 ![Screenshot_2024-07-05-00-59-22-254_host exp exponent](https://github.com/Saswat2002/mob_app/assets/168168754/7aa36485-749c-4142-a9ca-7758c67125fe)
 ![Screenshot_2024-07-05-00-59-30-677_host exp exponent](https://github.com/Saswat2002/mob_app/assets/168168754/dbac0387-2934-4304-a8f1-123717285e5f)
+![Screenshot_2024-07-05-01-03-14-683_host exp exponent](https://github.com/Saswat2002/mob_app/assets/168168754/25a37234-92fa-4dd9-bf07-51d6a4d95bad)
